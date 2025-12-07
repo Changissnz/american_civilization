@@ -11,3 +11,5 @@ Warum müssen die meisten Menschen beschämt werden, damit sich Homosexuelle woh
 
 Verleumderische, gotteslästerliche Amerikaner. Ich höre ihre Verleumdungen sogar im Schlaf, deshalb öffne ich in der Öffentlichkeit nie den Mund.
 
+Das System weiß, wie der Mensch funktioniert. Gute Menschen, so wie es die moralische Gesellschaft vorschreibt, heiraten nicht, wenn sie mittellos sind. Und selbst wenn sie nicht mittellos sind, ist eine Heirat nicht immer selbstverständlich. Doch dies ist der Gott des Menschen mit seinen moralischen Geboten. Irgendwie tut der Mensch immer noch Dinge, ob gut oder böse, wegen Gott. Ich sage dies als Wahrheit, nicht als strahlender Ritter.
+
