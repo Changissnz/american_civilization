@@ -13,3 +13,4 @@ Verleumderische, gotteslästerliche Amerikaner. Ich höre ihre Verleumdungen sog
 
 Das System weiß, wie der Mensch funktioniert. Gute Menschen, so wie es die moralische Gesellschaft vorschreibt, heiraten nicht, wenn sie mittellos sind. Und selbst wenn sie nicht mittellos sind, ist eine Heirat nicht immer selbstverständlich. Doch dies ist der Gott des Menschen mit seinen moralischen Geboten. Irgendwie tut der Mensch immer noch Dinge, ob gut oder böse, wegen Gott. Ich sage dies als Wahrheit, nicht als strahlender Ritter.
 
+Es geht nicht ums Geld. Es geht nicht um Geld. Bieten Sie keine Wahlmöglichkeiten an, wo es keine gibt, und es wird weniger wütende Menschen geben. Weniger wütende Menschen bedeuten weniger Probleme. Wissen Sie jetzt, warum Kaufleute als die niedrigste aller Kasten angesehen werden? Aber es sind die Unberührbaren, denen die Menschen keinen Respekt entgegenbringen. Respekt ist wie Geld, es ist reine Transaktion.
