@@ -29,3 +29,7 @@ Hier sind einige typische Liebesgeschichten aus den USA, die die traurige Realit
 Das sind Zwickmühlen, ein sinnloses Spiel, reine Fantasien. Und siehe da, die reiche und vielfältige Flora der Menschheit, die die USA zu bieten haben. Es ist wie ein Vergnügungspark, in dem die Gastgeber nur so gastfreundlich sind, wie viel Geld man noch in der Tasche hat. Es geht nicht immer nur ums Geld, aber trotzdem…
 
 Und doch ist dies das Land, das immer noch die Rolle der Weltpolizei spielen will. Reine Zerstörung bringt keinen Gewinn, daher müssen andere Motive dahinterstecken.
+
+Die Amerikaner sollten sich angesichts dieser Situation, die an den Kalten Krieg erinnert, seit der Amtszeit von Donald Trump durchaus Sorgen machen. Und man sollte Mitleid mit dem nächsten Land haben, das als Stellvertreter Kriegsschauplatz für die USA, China und Russland herhalten muss.
+
+Frieden.
