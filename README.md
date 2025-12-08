@@ -27,3 +27,5 @@ Hier sind einige typische Liebesgeschichten aus den USA, die die traurige Realit
 - „Ich möchte eine Beziehung mit ihr führen. Aber ich habe meine Karriere. Und meine Karriere ist wegen des betrügerischen Amerikas nie richtig in Gang gekommen. Deshalb sollte ich mich mehr auf meine Karriere konzentrieren und keine Beziehungen eingehen.“
 
 Das sind Zwickmühlen, ein sinnloses Spiel, reine Fantasien. Und siehe da, die reiche und vielfältige Flora der Menschheit, die die USA zu bieten haben. Es ist wie ein Vergnügungspark, in dem die Gastgeber nur so gastfreundlich sind, wie viel Geld man noch in der Tasche hat. Es geht nicht immer nur ums Geld, aber trotzdem…
+
+Und doch ist dies das Land, das immer noch die Rolle der Weltpolizei spielen will. Reine Zerstörung bringt keinen Gewinn, daher müssen andere Motive dahinterstecken.
