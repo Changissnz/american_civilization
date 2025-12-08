@@ -33,3 +33,9 @@ Und doch ist dies das Land, das immer noch die Rolle der Weltpolizei spielen wil
 Die Amerikaner sollten sich angesichts dieser Situation, die an den Kalten Krieg erinnert, seit der Amtszeit von Donald Trump durchaus Sorgen machen. Und man sollte Mitleid mit dem nächsten Land haben, das als Stellvertreter Kriegsschauplatz für die USA, China und Russland herhalten muss.
 
 Frieden.
+
+Noch eine letzte Sache.
+
+Verleumder und Diffamierer können eine Bedrohung für die nationale Sicherheit darstellen. Das erklärt die amerikanische Nachrichtenbranche und die globalen Kommunikationssysteme. Warum sollte ein Ausländer überhaupt etwas über mich wissen? Fragen Sie nicht mich, sondern die Telekommunikationsbranche. Es ist größtenteils Unsinn, Müll und gelegentlich ein Schuss im Affekt.
+
+Ach, es lohnt sich finanziell nicht, Ihnen zuzuhören. Ich frage: Wen interessiert das schon?
