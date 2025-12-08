@@ -21,12 +21,9 @@ Aber das ist die USA. Dort gilt nicht das indische Kastensystem. Es werden ander
 
 Hier sind einige typische Liebesgeschichten aus den USA, die die traurige Realität der Menschheit verdeutlichen.
 
-„Sie mag dich und liebt dich. Aber sie ist arm und du bist noch ärmer. Deshalb wird sie sich wohl für einen reicheren Mann entscheiden müssen.“
-
-„Du liebst sie und sie begehrt dich. Aber ihr könnt nicht zusammen in der Öffentlichkeit gesehen werden, weil einer von euch einer Minderheit angehört.“
-
-„Seine Familie gehörte früher zu einer Minderheit, und deine Familie gehört immer noch einer Minderheit an. Lass ihn dir helfen, und dann fickt er dich und alle anderen.“
-
-„Ich möchte eine Beziehung mit ihr führen. Aber ich habe meine Karriere. Und meine Karriere ist wegen des betrügerischen Amerikas nie richtig in Gang gekommen. Deshalb sollte ich mich mehr auf meine Karriere konzentrieren und keine Beziehungen eingehen.“
+- „Sie mag dich und liebt dich. Aber sie ist arm und du bist noch ärmer. Deshalb wird sie sich wohl für einen reicheren Mann entscheiden müssen.“  
+- „Du liebst sie und sie begehrt dich. Aber ihr könnt nicht zusammen in der Öffentlichkeit gesehen werden, weil einer von euch einer Minderheit angehört.“  
+- „Seine Familie gehörte früher zu einer Minderheit, und deine Familie gehört immer noch einer Minderheit an. Lass ihn dir helfen, und dann fickt er dich und alle anderen.“  
+- „Ich möchte eine Beziehung mit ihr führen. Aber ich habe meine Karriere. Und meine Karriere ist wegen des betrügerischen Amerikas nie richtig in Gang gekommen. Deshalb sollte ich mich mehr auf meine Karriere konzentrieren und keine Beziehungen eingehen.“
 
 Das sind Zwickmühlen, ein sinnloses Spiel, reine Fantasien. Und siehe da, die reiche und vielfältige Flora der Menschheit, die die USA zu bieten haben. Es ist wie ein Vergnügungspark, in dem die Gastgeber nur so gastfreundlich sind, wie viel Geld man noch in der Tasche hat. Es geht nicht immer nur ums Geld, aber trotzdem…
